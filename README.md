@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @andulatif
-- 👀 I’m interested in ... hacker
+- 👀 I am learning English
 🌱 I have knowledge of programming web software beckend and Java I am learning now
 - 💞️ I don't want to cooperate on one right now
 - 📫 How to reach me ... sorry no telephone number  email adress latif51sar@gmail.com and fatih51sa@gmail.com
